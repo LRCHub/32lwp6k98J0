@@ -1,0 +1,72 @@
+# avex ROYALBRATS – MAKURIAGE
+
+> **歌詞登録ステータス：プレーン歌詞のみ**
+
+```
+おれ降臨 Peace! yep
+Call me king from the underdog
+ほら勝利の美酒ならとっくにキープ
+どころか空き瓶並ぶカウンター上
+ビビるくらいSpin ぶん回しすぎ
+レベチすぎカルチャーショック
+背中にはウィング 市場規模 大成長
+スケールがB2B
+All I need is win
+蹴散らす人気者気取りやらニヤついた商売人
+安心すんなし
+あの借りなら耳揃えて今借金返済日
+おびただしいEnemies お労しや
+見る目があるなら来いギャラリーズ
+Charli XCXも踊り出すくらいだぜBratsなRoyalty
+地獄の火の車から今陽の目浴びるまで極めた身の振り
+方
+日和る気ならサラサラないわ
+未だに目が血走ったまま綺羅 ギラギラ牙
+いかねぇ一筋縄いらねぇ他人の力
+ミドルクラスに甘んじるな馬鹿
+World class like ヒロシ藤原
+一発かますから
+Eyday struggle to 斬る My shadow
+舐めてかかるなら速攻Battle
+ザワザワザワこれ暁光だろ
+口座の入金すぐDouble Double Double
+Top of triangleへの道なら相当Narrowだが オレのボ
+トムダボダボ
+財布も分厚くなるからちょうどエエやろ
+ピラミッドの頂上からHello
+MAKURIAGE
+軽はずみなバズりとキャリアの厚みが違えから
+MAKURIAGE
+甘く見た奴涙目お疲れ明日にはいねぇーだろ
+MAKURIAGE
+おれが捲し立てりゃほらお前ら尻尾巻くしかねぇだろ
+MAKURIAGE
+Ey ey
+MAKURIAGE
+邪魔 Get out of my way
+おれらやるべきときに寝てるバカちゃーう
+与えられるの待つだけならば赤ちゃん
+アコギなGame
+I don't give a damn
+雁首揃えGet of my way
+あくびが出る
+Time of payment
+叩き上げて捲り上げて
+MAKURIAGE
+軽はずみなバズりとキャリアの厚みが違えから
+MAKURIAGE
+甘く見た奴涙目お疲れ明日にはいねぇーだろ
+MAKURIAGE
+おれが捲し立てりゃほらお前ら尻尾巻くしかねぇだろ
+MAKURIAGE
+Ey ey
+MAKURIAGE
+邪魔 Get out of my way
+MAKURIAGE
+MAKURIAGE
+MAKURIAGE
+MAKURIAGE
+MAKURIAGE
+MAKURIAGE
+MAKURIAGEっからGet out of my way
+```
