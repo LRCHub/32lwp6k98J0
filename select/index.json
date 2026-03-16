@@ -1,0 +1,16 @@
+{
+  "version": 1,
+  "base_track": "MAKURIAGE",
+  "base_artist": "avex ROYALBRATS",
+  "createdAt": "2026-03-16T11:27:20.232688Z",
+  "candidates": [
+    {
+      "id": "petitlyrics_1",
+      "source": "petitlyrics",
+      "title": "MAKURIAGE (feat. テークエム)",
+      "artist": "avex ROYALBRATS",
+      "has_synced": false,
+      "path": "select/pl_01_MAKURIAGE_(feat._テークエム)_avex_ROYALBRATS.txt"
+    }
+  ]
+}
